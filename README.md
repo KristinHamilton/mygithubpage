@@ -1,1 +1,1 @@
-# mygithubpage
+KristinHamilton.me Home
